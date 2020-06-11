@@ -86,10 +86,11 @@ Dinosaur costume
 Walking dinosaur suit
 Walking dinosaur puppet
 
-www.robotdinos.com
-info@dinosaurs-world.com
-Skype : jackyzengdinosaursworld
-Mobile :0086 13778532392
+Mobile: +86 137 7853 2392
+
+Email: info@dinosaurjoy.com
+
+Web: http://www.dinosaurjoy.com/
  
 Zigong Dinosaurs World Science & Technology Co.,Ltd. is the leading manufacturer and exporter of animatronic dinosaurs, animatronic animals, kids dig fossils replica , dinosaur skeletons replica , dinosaur fossil & bones replica, fiberglass cartoon characters , theme dinosaur park entrance , walking dinosaur rides , kids entertainment models , dinosaur costumes and dinosaur rides in China .Through the years of hard working , we have cooperated with European , Japanese , South Korean , USA , South American and the Middle East customers for more than 12 years. We have became one of the biggest exporters for Animatronic products all over the world.
 
